@@ -21,7 +21,7 @@ I'm always eager to learn new technologies and build innovative solutions! 🚀
 ### 📫 Connect with Me  
 📩 Email: **[ipmore21@gmail.com](mailto:ipmore21@gmail.com)**  
 🔗 LinkedIn: **[linkedin.com/in/ishamore21](https://linkedin.com/in/ishamore21)**  
-💻 GitHub: **[github.com/YOUR_GITHUB_USERNAME](https://github.com/YOUR_GITHUB_USERNAME)**  
+💻 GitHub: **[github.com/Ishha9](https://github.com/Ishha9)**  
 
 ---
 
